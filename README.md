@@ -1,0 +1,1 @@
+# MichalPolacek-Semestralni-prace-uzivatelsky-software
