@@ -9,3 +9,9 @@ Dobrý den,
 téma je: Technické problémy při přenosu a přehrávání prezentací Microsoft PowerPoint mezi zařízeními.
 
 Děkuji
+
+
+Dobrý den,
+téma máte schváleno.
+S pozdravem
+Hana Vojáčková
